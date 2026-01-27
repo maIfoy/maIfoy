@@ -1,3 +1,4 @@
 my dracolings (wip)
-![pony-town-Draco Malfoy-trot-fixed-1x](https://github.com/user-attachments/assets/17b421c1-7580-469a-8b19-246693a6f66b)
-![pony-town-Draco Malfoy-trot-fixed-ponyplush-1x](https://github.com/user-attachments/assets/1428f3e1-0276-466d-9cb1-6a27375e4625)
+
+![pony-town-Draco Malfoy-trot-fixed-2x](https://github.com/user-attachments/assets/078983f7-202e-4814-9053-ebddba81e8be)
+![pony-town-Draco Malfoy-trot-fixed-ponyplush-2x](https://github.com/user-attachments/assets/6da009d8-8978-40d4-b9be-45bb53988624)
