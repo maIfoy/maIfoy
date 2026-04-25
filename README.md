@@ -18,7 +18,6 @@ my dracolings 💚💚💚💚💚💚💚 DO NOT feed them DO NOT tap on the gl
 ![pony-town-___-trot-fixed-2x](https://github.com/user-attachments/assets/f9942dc7-1a1c-4ef6-a0a5-674783b3c336)
 ![pony-town-🥚🥚🥚🥚🥚🥚🥚🥚🥚🥚🥚🥚🥚🥚🥚-trot-fixed-2x](https://github.com/user-attachments/assets/03daceda-17bb-4f73-b953-e80bc8e064ad)
 ![pony-town-😴-trot-fixed-toy420-2x](https://github.com/user-attachments/assets/2cfeb5cf-c0a6-402f-a403-ba9d32b8ae7d)
-![pony-town-3rtyjukigtrrrrrrrrrrrrrr-trot-fixed-2x](https://github.com/user-attachments/assets/aea713ae-71a6-449b-9a27-c7fb7458b303)
 ![pony-town-anyway here&#39;s wonderwall-trot-fixed-toy146-2x](https://github.com/user-attachments/assets/e6a69086-b5b2-4881-b644-220522e3575a)
 ![pony-town-banana balfoy-trot-fixed-2x](https://github.com/user-attachments/assets/2cc36fb6-3023-48c1-81d5-67de6ee51d2b)
 ![pony-town-batmanlier-trot-fixed-2x](https://github.com/user-attachments/assets/9a129d1f-a1fc-4f45-8a38-30c709b39c3a)
