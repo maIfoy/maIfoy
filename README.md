@@ -1,4 +1,4 @@
-my dracolings 💚💚💚💚💚💚💚
+my dracolings 💚💚💚💚💚💚💚 DO NOT feed them DO NOT tap on the glass
 
 <img width="160" height="200" alt="pony-town-🐉 offtab-trot-blinking-fixed-padded-2x" src="https://github.com/user-attachments/assets/bd9892b4-fa35-4210-859e-d03184d920fe" />
 <img width="160" height="200" alt="pony-town-😓-trot-blinking-fixed-padded-2x" src="https://github.com/user-attachments/assets/650f81d4-c55c-45b2-894e-943fff3cfd3b" />
