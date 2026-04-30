@@ -4,6 +4,10 @@ my dracolings 💚💚💚💚💚💚💚 DO NOT feed them DO NOT tap on the gl
 <img width="160" height="200" alt="pony-town-😓-trot-blinking-fixed-padded-2x" src="https://github.com/user-attachments/assets/650f81d4-c55c-45b2-894e-943fff3cfd3b" />
 <img width="160" height="200" alt="pony-town-🐉 afk work - w2i-trot-blinking-fixed-padded-toy364-2x" src="https://github.com/user-attachments/assets/3b217a63-eb30-4b59-9b04-c62a0ab8864e" />
 <img width="160" height="200" alt="pony-town-Whopper extra tomato no pickle-trot-blinking-fixed-padded-2x" src="https://github.com/user-attachments/assets/b8d321ec-1f53-49a7-a4ae-7b7e729d4a2f" />
+<img width="160" height="200" alt="pony-town-Pony-trot-blinking-fixed-padded-2x (1)" src="https://github.com/user-attachments/assets/0432dad2-580b-4e79-9dd7-59de8479846e" />
+<img width="160" height="200" alt="pony-town-🐉 draco - offtab-trot-blinking-fixed-padded-2x" src="https://github.com/user-attachments/assets/29eff80f-3124-441c-92a3-5cc8c0c702d9" />
+<img width="160" height="200" alt="pony-town-🐛 draco - afk-trot-blinking-fixed-padded-2x" src="https://github.com/user-attachments/assets/1d02f4c6-b2e6-461b-b909-ef0d550d7952" />
+<img width="160" height="200" alt="pony-town-Pony-trot-blinking-fixed-padded-2x (3)" src="https://github.com/user-attachments/assets/ee167f26-5828-439b-97e5-bff3dcc1ad72" />
 
 ![pony-town-Draco Malfoy-trot-fixed-2x](https://github.com/user-attachments/assets/078983f7-202e-4814-9053-ebddba81e8be)
 ![pony-town-Draco Malfoy-trot-fixed-ponyplush-2x](https://github.com/user-attachments/assets/6da009d8-8978-40d4-b9be-45bb53988624)
