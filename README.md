@@ -12,11 +12,6 @@ my dracolings 💚💚💚💚💚💚💚 DO NOT feed them DO NOT tap on the gl
 <img width="160" height="200" alt="pony-town-🐉 draco - afk-trot-fixed-padded-toy122-2x" src="https://github.com/user-attachments/assets/7da7eaec-2386-48e8-9ca6-8e71b7e127df" />
 <img width="160" height="200" alt="pony-town-ozempic crocodile-trot-fixed-padded-toy10-2x" src="https://github.com/user-attachments/assets/d74959fb-1a4f-4444-8b88-ee196669d667" />
 <img width="160" height="200" alt="pony-town-Pony-trot-fixed-padded-toy24-2x" src="https://github.com/user-attachments/assets/d5bb1807-4f14-4c62-b97a-d556d8429eeb" />
-<img width="160" height="200" alt="pony-town-princess sleeping-trot-fixed-padded-toy124-2x" src="https://github.com/user-attachments/assets/7f4326c8-1764-490a-a373-0a9134cff5b7" />
-
-
-
-
 
 
 ![pony-town-Draco Malfoy-trot-fixed-2x](https://github.com/user-attachments/assets/078983f7-202e-4814-9053-ebddba81e8be)
