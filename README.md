@@ -112,7 +112,6 @@ my dracolings 💚💚💚💚💚💚💚 DO NOT feed them DO NOT tap on the gl
 ![pony-town-what&#39;s wrong with his face🤢-trot-fixed-toy399-2x](https://github.com/user-attachments/assets/60beccbc-3e66-4bec-9b2f-36eafadb22a8)
 ![pony-town-Who_-trot-fixed-2x](https://github.com/user-attachments/assets/5cc4bbc5-52bd-4886-b5f2-98c0eac9d103)
 ![pony-town-Draco Malfoy 🎀 semi afk-trot-fixed-toy33-2x](https://github.com/user-attachments/assets/30781f0a-a9c1-4454-ab0c-f2b2b91396cd)
-![pony-town-!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!-trot-fixed-2x](https://github.com/user-attachments/assets/88ef6e34-7444-4440-a56b-1c561e61ce1f)
 
 <img width="200" height="194" alt="67" src="https://github.com/user-attachments/assets/3de9e25c-3918-4465-b558-992cc479c83e" />
 
